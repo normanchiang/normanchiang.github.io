@@ -1,1 +1,0 @@
-# normanchiang.github.io
